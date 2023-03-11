@@ -1,5 +1,5 @@
 # Uncletopia
-The worst server to exist.
+The worst server to exist. (im famous within uncletopia mods/admins !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!)
 
 # Why?
 Uncletopia has known to purchase bots to promote their servers like a fucking telemarketter and the staff team is full of furries. People on the server when they see a bot act like a whiny bitch which is fun to see and then there are moments when uncletopia players go mald when seeing a bot.
